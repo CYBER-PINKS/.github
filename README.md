@@ -1,1 +1,1 @@
-# .github
+![Neon2](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=22&duration=10&pause=150&color=FF3399&background=000000&center=true&width=1050&height=200&lines=WELCOME+CYBER+PINKS!!+NEON+CONCEPT)
